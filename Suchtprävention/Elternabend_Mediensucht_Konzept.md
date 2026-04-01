@@ -1,5 +1,9 @@
+![Diakonie Rendsburg-Eckernförde Logo](../Logo%20DW%2015.docx)
+
 # KONZEPT: ELTERNABEND – MEDIENSUCHT
 ## Prävention und Aufklärung für Eltern
+
+**Projektträger:** Diakonie Rendsburg-Eckernförde
 
 ---
 

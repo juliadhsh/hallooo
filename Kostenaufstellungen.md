@@ -1,4 +1,8 @@
+![Diakonie Rendsburg-Eckernförde Logo](Logo%20DW%2015.docx)
+
 # KOSTENAUFSTELLUNG: PROJEKTE
+
+**Projektträger:** Diakonie Rendsburg-Eckernförde
 
 ---
 

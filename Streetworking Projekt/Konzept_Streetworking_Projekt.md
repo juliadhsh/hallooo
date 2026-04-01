@@ -1,5 +1,9 @@
+![Diakonie Rendsburg-Eckernförde Logo](../Logo%20DW%2015.docx)
+
 # KONZEPT: STREETWORKING PROJEKT
 ## Vorstellung für den Stadtrat
+
+**Projektträger:** Diakonie Rendsburg-Eckernförde
 
 **Projektbezeichnung:** Streetworking – Niedrigschwellige Sozialarbeit in der Stadt
 
